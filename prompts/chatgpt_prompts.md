@@ -43,4 +43,3 @@ A **Shopee** teve o maior volume de vendas, indicando que pode ser a melhor opç
 - **Potencial para promoções** – Estratégias como cupons e frete grátis podem impulsionar vendas.  
 
 ---
-
